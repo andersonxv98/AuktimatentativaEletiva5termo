@@ -1,0 +1,2 @@
+# AuktimatentativaEletiva5termo
+ socorro
